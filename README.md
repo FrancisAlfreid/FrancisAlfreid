@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on people with same interest as i am
 - 📫 How to reach me facebook and instragram
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: i have a crush on my talking stage girl
+- ⚡ Fun fact: she's disappointed with me
 
 <!---
 FrancisAlfreid/FrancisAlfreid is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
